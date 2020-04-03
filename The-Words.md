@@ -90,6 +90,18 @@
 86. https://youtube.com/watch?v=KIePsbJSS04
 87. siga = sistema integral graficamente abansado
 88. nunca confies en los relojes de la U, tampoco del microndas
+89. ![alt text](https://github.com/mario-marin/The-Fate-Book/blob/master/Images/89.jpg "89")
+90. # MOAR!
+91. ![alt text](https://github.com/mario-marin/The-Fate-Book/blob/master/Images/91.jpg "91")
+92. el mauricio se rompe al menos 1 vez por semana
+93. la gradiente es el punto perpenticular al Mario
+94. en cualquier momento puede pasar cualquier cosa
+95. los condensadores no son esfericos, por que.....como mierda cargay esa wea?
+96. siempre queda la cagaa en el estadio dominical de san-íter del burgo
+97. hay que aprender a mirar para el frente
+98. el perro nuclear exploto... y todas se murieron, fin (la mejor historia de dormir)
+99. nadie piensa en la capa de osbaldo :c
+100. si hoy no es jueves, entonses es enero o pollo
 
 
 
