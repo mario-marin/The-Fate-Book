@@ -37,7 +37,7 @@
 36. los pulpitos hipocampos le dan el caracter caotico al viaje en el tiempo (28.)
 37. imprima una copia de "GNU coding standards", no lo lea y quemela, es un acto de buena suerte y fortuna
 38. no vale la pena mencionarlo (pobre imbécil)
-39. 
+39. ![alt text](https://github.com/mario-marin/The-Fate-Book/blob/master/Images/39.jpg "39")
 
 
 #169
