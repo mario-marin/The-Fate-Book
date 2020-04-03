@@ -51,7 +51,10 @@
 50. para que sumar bien si lo puedes aser mal
 51. los gatos tienen una dualidad conductor ⟷ aislante
 52. las leyes de osbaldo y el capitan Kirk son importantes para ..... que el arroz quede delizioso
-53. este es por definicion un punto del espacio ![alt text](https://github.com/mario-marin/The-Fate-Book/blob/master/Images/53.jpg "53")
+53. este es por definicion un punto del espacio 
+![alt text](https://github.com/mario-marin/The-Fate-Book/blob/master/Images/53.jpg "53")
+54. el usuario no sabe lo que quiere
+55. si su pan esta frio recuerde 45. y todo estara bien :)
 
 
 #169
