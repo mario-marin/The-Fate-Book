@@ -22,7 +22,7 @@
 21. los vasos son vasos a menos que sea una jarra
 22.su usted se bugea no entre en pánico, solo debe si usted se bugea no entre en pánico, solo debe si usted se bugea no debe en pánico 22.
 23. 82/2 ≠ 41
-24. 
+24. ![alt text](https://github.com/mario-marin/The-Fate-Book/Images/24.jpg "24")
 
 #169
 
