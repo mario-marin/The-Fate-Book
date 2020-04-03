@@ -45,6 +45,13 @@
 44. no dejes para ayer lo que puedes manala por que hoy puede ser demaciado tarde
 45. para todo t esta caliente
 46. ayudencio es un ayudador entre mañana y ayer ![alt text](https://github.com/mario-marin/The-Fate-Book/blob/master/Images/46.jpg "46")
+47. un dia, las nuves bajaran y nada sera lo mismo
+48. si ases mucho ejercicio se te desmiembran los musculos
+49. se puede emplotar para afuera SSI: la hora es jueves
+50. para que sumar bien si lo puedes aser mal
+51. los gatos tienen una dualidad conductor ⟷ aislante
+52. las leyes de osbaldo y el capitan Kirk son importantes para ..... que el arroz quede delizioso
+53. este es por definicion un punto del espacio 
 
 
 #169
