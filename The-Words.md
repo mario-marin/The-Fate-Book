@@ -61,7 +61,16 @@
 59. reprecentacion grafica del yo del pasado: 
 ![alt text](https://github.com/mario-marin/The-Fate-Book/blob/master/Images/59.jpg "59")
 60. ante la duda responda "I WOULD PEE ON EVERYTHING" mientras mas seguro, mejor
-61. 
+61. ![alt text](https://github.com/mario-marin/The-Fate-Book/blob/master/Images/61.jpg "61") ,siempre es mas fasil aser sillas de lejos (59.)
+62. pankekes suelen mejorar todas las situaciones
+63. como puede ser eso?
+64. el 11/01/15 sera un buen dia, lo vi en una cajita de jugo
+65. la micro no es el mejor lugar para escribir, sobretodo si vas parado :S
+66. la magia arcana... es buena
+67. si no confias en algien, no le des un balde con agua
+68. no se ase mas temprano
+69. X es una constante universal
+70. 
 
 #169
 
