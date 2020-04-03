@@ -83,6 +83,14 @@
 79. Nunca intentes amarrarte los zapatos al lado de un cactus =(
 80. prostitusion =: es blandito
 81. col: ∀ Lusho ∃! fluffy
+82. ![alt text](https://github.com/mario-marin/The-Fate-Book/blob/master/Images/82.jpg "82")
+83. no existe =: =(X
+84. el condensador almacena campitos
+85. la vida tiende a arriba a la derecha
+86. https://youtube.com/watch?v=KIePsbJSS04
+87. siga = sistema integral graficamente abansado
+88. nunca confies en los relojes de la U, tampoco del microndas
+
 
 
 #169
