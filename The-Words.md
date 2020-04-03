@@ -73,6 +73,16 @@
 70. el ![alt text](https://github.com/mario-marin/The-Fate-Book/blob/master/Images/70.jpg "70") tiene una relacion especial con las tazas
 71. sea lo que sea probablemente sera inesperado
 72. representacion grafica de 27.
+![alt text](https://github.com/mario-marin/The-Fate-Book/blob/master/Images/72.jpg "72")
+73. violaciones despues de la 3:30
+74. siempre que puedas escribe en imprenta y no con la mano
+75. si usted se encuentra con una super nova, lanzele 1 toalla nova y vea que pasa
+76. yo no soy mechón, puedo llegar tarde... GG mauricio
+77. nunca confies en aragon nunca lleba a los hobbits a insengard
+78. aragon es una variable unibersal
+79. Nunca intentes amarrarte los zapatos al lado de un cactus =(
+80. prostitusion =: es blandito
+81. col: ∀ Lusho ∃! fluffy
 
 
 #169
