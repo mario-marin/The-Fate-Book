@@ -38,6 +38,13 @@
 37. imprima una copia de "GNU coding standards", no lo lea y quemela, es un acto de buena suerte y fortuna
 38. no vale la pena mencionarlo (pobre imbécil)
 39. ![alt text](https://github.com/mario-marin/The-Fate-Book/blob/master/Images/39.jpg "39")
+40. "H"asta algo logico puede, o no, tener sentido en un evento desafortunado
+41. THERE I FIXIT
+42. ?
+43. Fundición Ortega, y protíbulo...próximamente aeropuerto
+44. no dejes para ayer lo que puedes manala por que hoy puede ser demaciado tarde
+45. para todo t esta caliente
+46. ayudencio es un ayudador entre mañana y ayer
 
 
 #169
