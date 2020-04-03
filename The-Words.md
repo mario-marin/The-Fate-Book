@@ -70,7 +70,10 @@
 67. si no confias en algien, no le des un balde con agua
 68. no se ase mas temprano
 69. X es una constante universal
-70. 
+70. el ![alt text](https://github.com/mario-marin/The-Fate-Book/blob/master/Images/70.jpg "70") tiene una relacion especial con las tazas
+71. sea lo que sea probablemente sera inesperado
+72. representacion grafica de 27.
+
 
 #169
 
