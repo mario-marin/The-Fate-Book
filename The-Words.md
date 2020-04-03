@@ -55,6 +55,7 @@
 ![alt text](https://github.com/mario-marin/The-Fate-Book/blob/master/Images/53.jpg "53")
 54. el usuario no sabe lo que quiere
 55. si su pan esta frio recuerde 45. y todo estara bien :)
+56. ![alt text](https://github.com/mario-marin/The-Fate-Book/blob/master/Images/56.jpg "56")
 
 
 #169
