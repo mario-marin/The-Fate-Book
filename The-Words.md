@@ -143,7 +143,7 @@
 138. pate PF  de jamon es op
 139. continuando con (65.), sentado tampoco es fasil
 140. ![alt text](https://github.com/mario-marin/The-Fate-Book/blob/master/Images/140.jpg "140")
-141.el sol es un pillin
+141. el sol es un pillin
 142. la gente en loos paraderos, estan esperando algo, no estoy seguro de de que, pero no siempre estan parados lo cual me confunde
 143. SAMPLE TEXT
 144. el mejor profe es archibaldo
@@ -156,9 +156,19 @@
 151. BOR es el mejor tema de memoria/tesis
 152. comunicasion inalambrica es muy descortez
 153. las gaviotas son pollos de mar
-
-
-#169
-
------------------------------reservado desde 1-169, transcripcion en progreso--------------------------------------------
- 
+154. ![alt text](https://github.com/mario-marin/The-Fate-Book/blob/master/Images/154.jpg "154")
+155. el arcoiris es un arco muy inefisiente
+156. el caos vendra
+157. ek caos llego
+158. el caos se fue
+159. el caos volvera
+160. ...rinse and repeat
+161. idea brillante
+162. la DIF entre tubo y mangera es lo que diga matias
+163. el dinero esta sobre valorado, por que sino no valdria nada
+164. la palabra del dia es asintotico
+165. en el RFC se pueden poner citas
+166. cuando el lucho bota una taza de café, cambia el pasado y queda la "cagaah"
+167. si te da paja, masturbate
+168. **entropia:** corresponde a la cantidad de desorden en una taza de brea, se mide en entropitos
+169. Queda estrictamente prohibido presentarce en estado de ebriedad a la iniciacion del juego, isn envargo este podra irse adquiriendo durante el transcurso del mismo, con la intensidad que cada uno lo estime conveniente.
