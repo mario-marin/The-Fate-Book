@@ -59,7 +59,9 @@
 57. **CHICKEN:** chicken chicken chicken, chicken; chicken "chickens" chicken.
 58. el yo del mañana suele odiar al yo del presente, pero el yo del pasado nunca ase ni una wea tampoco
 59. reprecentacion grafica del yo del pasado: 
-
+![alt text](https://github.com/mario-marin/The-Fate-Book/blob/master/Images/59.jpg "59")
+60. ante la duda responda "I WOULD PEE ON EVERYTHING" mientras mas seguro, mejor
+61. 
 
 #169
 
