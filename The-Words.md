@@ -56,6 +56,9 @@
 54. el usuario no sabe lo que quiere
 55. si su pan esta frio recuerde 45. y todo estara bien :)
 56. ![alt text](https://github.com/mario-marin/The-Fate-Book/blob/master/Images/56.jpg "56")
+57. **CHICKEN:** chicken chicken chicken, chicken; chicken "chickens" chicken.
+58. el yo del mañana suele odiar al yo del presente, pero el yo del pasado nunca ase ni una wea tampoco
+59. reprecentacion grafica del yo del pasado: 
 
 
 #169
