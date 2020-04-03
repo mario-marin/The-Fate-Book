@@ -44,7 +44,7 @@
 43. Fundición Ortega, y protíbulo...próximamente aeropuerto
 44. no dejes para ayer lo que puedes manala por que hoy puede ser demaciado tarde
 45. para todo t esta caliente
-46. ayudencio es un ayudador entre mañana y ayer
+46. ayudencio es un ayudador entre mañana y ayer ![alt text](https://github.com/mario-marin/The-Fate-Book/blob/master/Images/46.jpg "46")
 
 
 #169
