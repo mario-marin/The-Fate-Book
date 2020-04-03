@@ -102,7 +102,60 @@
 98. el perro nuclear exploto... y todas se murieron, fin (la mejor historia de dormir)
 99. nadie piensa en la capa de osbaldo :c
 100. si hoy no es jueves, entonses es enero o pollo
-
+101. ![alt text](https://github.com/mario-marin/The-Fate-Book/blob/master/Images/101.jpg "101")
+102. nadie se acuerda de marta
+103. el azucar granulada esta hecha de potros muertos
+104. el dia de hoy es como ayer pero no como mañana
+105. los lapizes que escriben mas o menos, son lo peor
+106. el sol sale a pasear de bez en cuando, por eso derrepente no esta
+107. la hora es [# ERROR], esto es traido a ustedes por el yo del pasado
+108. el pasto crese para arriba el 3% de las vezes
+109. do you want to metal?
+110. ℝ es mejor que R
+111. siempre hay un viejo en la distancia
+112. teme a los pajaros, ellos te cazaran
+113. el apio es bueno para dejarlo por hay
+114. las 1PM de hoy es similar a las 23PM del 88 de febrero del 2019π
+115. ![alt text](https://github.com/mario-marin/The-Fate-Book/blob/master/Images/115.jpg "115")
+116. en caso de estar solo y nesesitado, folle una gallina, a menos que el viento sople al norte, en este caso la gallina es sagrada, y gana la abilidad de pajaro, por lo tanto...corra (112.)
+117. las cosas misteriosas estan para mantener el equilibrio del universo, no los cuestione
+118. los peluches se reproducen por las costuras
+119. al empastar las casas se llevan el pasto
+120. nothing do turkey
+121. nunca estas solo, siempre te tiene a ti, para aserte compañia
+122. en caso de perderse, siga para adelante nomas, algo ebentualmente ocurrira
+123. mas de 1 es demaciado, siempre
+124. el algoritmo de comprecion de VOR reduce todo a 3 letras, tomando la primera y las ultimas 2, en caso de faltar letras, repita la primera letra la cantidad suficiente
+125. enseradme el casco joven escudero
+126. en ASL no existen los conos, eso pertenece a MAT024
+127. si se chupa es un diodo
+128. THERE IS A CAT IN EVERY CORNER OF THE UNIVERSE
+129. no puedes bolber en el tiempo y ser tu propio padre
+130. pero puedes volver al pasado para ser tu profe en la U
+131. life is like a road...is just a adventure
+132. **Pansexual:** Por que se tiran hasta los panes
+  - mmmmmmm... pan francés
+133. Estan a dos quesos el queso
+134. el lechero es el portador oficial de leche
+135. Yuz son exelentes jugos a menos que le des un cañon de laplace
+136. hoy es jueves
+137. ,{
+138. pate PF  de jamon es op
+139. continuando con (65.), sentado tampoco es fasil
+140. ![alt text](https://github.com/mario-marin/The-Fate-Book/blob/master/Images/140.jpg "140")
+141.el sol es un pillin
+142. la gente en loos paraderos, estan esperando algo, no estoy seguro de de que, pero no siempre estan parados lo cual me confunde
+143. SAMPLE TEXT
+144. el mejor profe es archibaldo
+145. ņ̶̨̪̻͔̺̻̙̭̼̗̝͖̯̂̇̄̈́̍̀͂̋̉̕͝o̵̩͈͍̍́͒͗̆͂́̾͌̏̇̌͂͐͑ ̶̫͕͛͒̀͂̆͌̂̀̔͜͝r̷̡̡̟̥̜̰͎̀́͒̋̆̊̍͜e̷̛͓̩͕̭̫̝̻͒͒̀̏̉̃̇́̇̂̈̅ẗ̸̙̰̹̦͖̫̤̬̯̺́̀̔̉̎͊ä̵̢̧̢̢̛͕̯͕̱̟̖͍͚̖̟̫̲́̾͂̄̐̉̀̾̒̊̌̀̐̚͝
+146. si todo ba mal, apreta R
+147. "...come where around a toaster yet more powerful than a potato"
+148. todos los informes son el "peor informe"
+149. idea
+150. los regadores son torretas de agua
+151. BOR es el mejor tema de memoria/tesis
+152. comunicasion inalambrica es muy descortez
+153. las gaviotas son pollos de mar
 
 
 #169
