@@ -172,3 +172,4 @@
 167. si te da paja, masturbate
 168. **entropia:** corresponde a la cantidad de desorden en una taza de brea, se mide en entropitos
 169. Queda estrictamente prohibido presentarce en estado de ebriedad a la iniciacion del juego, isn envargo este podra irse adquiriendo durante el transcurso del mismo, con la intensidad que cada uno lo estime conveniente.
+170. LED = Less Edible Diode.
