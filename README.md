@@ -1,3 +1,6 @@
+![portada](https://user-images.githubusercontent.com/35697336/167963822-5b5142f1-72ac-4660-80c4-c34fd73696f0.png)
+
+
 1. bas a llegar desde muy lejos, y el ql este no ba a llegar... :c
 2. el detectibe carlos placencio es un veddet los sabados
 3. "el" mantendra el equilibrio del universo
